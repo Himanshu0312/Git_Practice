@@ -1,6 +1,11 @@
-Hey,
+Thanks for reading me first.
 
-Thanks for reading me first. You are good to go.
+Follow the below steps;
+1. Eat
+2. Sleep
+3. Repeat
 
-Regards,
-Product Developement Team
+
+Now, you are good to go
+
+Thanks Product Developement Team
